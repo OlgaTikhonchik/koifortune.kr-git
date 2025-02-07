@@ -1,0 +1,1 @@
+# koifortune.kr-git
